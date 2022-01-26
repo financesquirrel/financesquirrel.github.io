@@ -7,7 +7,8 @@ Since this is my first post it serves as both a blog starter as well as a supple
 You could say that my journey to financial independence and early retirement began approximately thirty years ago. When I was a kid I liked saving pocket change and left over lunch money in a little box. Whenever grandma gave me cash to buy something “nice”, I wouldn’t spend it. When dad sent me to the store to buy bread I’d keep the change. I would carefully squirrel it away and grow my financial nut. Coins I would exchange for bills, and small bills for larger ones. I don’t know why I was doing it. It just felt like the right thing to do since I didn’t know of anything worth spending my mini fortune on, yet.
 
 ![A jar half-full of coins spilling onto a table representing pocket change savings. Savings represents one of the main ways to achieve financial independence and early retirement.](/images/jar-of-coins-savings.jpg)
-Pocket change savings
+
+*Pocket change savings*
 
 By the time I was a teenager I had saved a relatively good amount of cash. I was even able to lend money to my mom when the family was in a pinch. In hindsight, I wish I knew about interest back then.
 
@@ -43,7 +44,7 @@ Therefore, I’m setting a goal to begin investing and be able to retire five ye
 
 ![Show a beach and cocktail representing a possible financial independence and early retirement activity.](/images/retirement-beach-cocktail.jpg)
 
-Retirement is not just sipping cocktails on the beach, though there should be a healthy amount of that involved.
+*Retirement is not just sipping cocktails on the beach, though there should be a healthy amount of that involved.*
 
 In conclusion, to achieve financial independence and early retirement I plan on doing the following:
 
